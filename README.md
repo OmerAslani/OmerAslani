@@ -8,6 +8,7 @@
 
 ## What i like the most :
 
+- 🎵 Music
 - 🐵 Animals
 - 🌍 Nature
 - ✈️ Traveling
