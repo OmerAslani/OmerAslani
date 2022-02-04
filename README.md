@@ -33,6 +33,7 @@
 - [The Pianist](https://www.youtube.com/watch?v=BFwGqLa_oAo&ab_channel=MovieclipsClassicTrailers)
 
 - [Slumdog millionaire](https://www.youtube.com/watch?v=AIzbwV7on6Q&ab_channel=SearchlightPictures)
+- [3 idiots](https://www.youtube.com/watch?v=K0eDlFX9GMc)
 
 
 ## Some of my surprising skills xD
