@@ -1,6 +1,6 @@
 # Omer ASLANI
 
-![Tesla](https://scontent.fbru2-1.fna.fbcdn.net/v/t1.18169-9/6858_1289518554396556_8897253138493519486_n.jpg?_nc_cat=107&ccb=1-5&_nc_sid=19026a&_nc_ohc=w2PLwsHwChEAX9CuE5R&_nc_ht=scontent.fbru2-1.fna&oh=00_AT842QJ64I7H5VMbaOPq7iGO6fHe2ZBfZ8A7aM6aklfieg&oe=61FAF801)
+![Tesla](https://scontent-bru2-1.xx.fbcdn.net/v/t1.18169-9/6858_1289518554396556_8897253138493519486_n.jpg?_nc_cat=107&ccb=1-5&_nc_sid=19026a&_nc_ohc=ZMLAI6lGSoEAX_p2rL8&_nc_ht=scontent-bru2-1.xx&oh=00_AT_88GpV_wclNBc_NCv_q3WwIv-7vrL0TH1E18XgRQ9KwA&oe=62267981)
 
 ***
 
